@@ -2,6 +2,7 @@
 - 👀 I love to code!!
 - 🌱 Mobile & PC games are my calmant:)
 - 💞️ Checkout my profile for awe content
+- 👀 Googling is my speciality;)
 - 📫 Mail me at: shrutiverma28022802@gmail.come
 
 <!---
